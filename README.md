@@ -1,1 +1,1 @@
-# Linksammlung zum Schulmedientag 2018
+# [Linksammlung](https://github.com/esdkrwl/schulmedientag/wiki) zum Schulmedientag 2018
